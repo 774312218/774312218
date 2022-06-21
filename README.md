@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @774312218
+- I’m chinese
+- you can find me with QQ774312218
